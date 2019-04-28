@@ -1,1 +1,1 @@
-## This branch is about frogs, we need more frog pictures.
+## This branch is about dogs, we need more dog pictures.
